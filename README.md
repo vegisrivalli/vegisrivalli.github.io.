@@ -1,1 +1,0 @@
-# vegisrivalli.github.io.
